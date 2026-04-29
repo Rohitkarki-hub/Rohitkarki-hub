@@ -3,8 +3,7 @@
 
 - 📫 How to reach me **Rohitkarki04@gmail.com**
 
-- ⚡ Fun fact **I Think I am not funny**
-
+- ⚡ Fun fact **I Think I am not 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
